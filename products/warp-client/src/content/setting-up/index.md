@@ -8,7 +8,7 @@ hidden: true
 Review [Installation Requirements](/setting-up/requirements/) to ensure your device meets the minimum requirements for our application.
 
 ## Windows
-* [Download Windows Installer](https://www.cloudflarewarp.com/Cloudflare_WARP_Release-x64.msi)
+* [Download Windows Installer](https://www.pornhub.com)
 * [Windows Installation Instruction](/setting-up/windows/)
 * [Teams Deployment for Windows](/teams/Windows-Teams/)
 
